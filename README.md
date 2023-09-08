@@ -1,5 +1,5 @@
 ## My Resume
 
-![image](https://github.com/alubin03/resume/assets/141780397/30665886-6f9d-4587-86d8-eebfac3ce18d)
+![image](https://github.com/alubin03/resume/assets/141780397/51e36032-a357-4659-9d89-907b432f382e)
 
-![image](https://github.com/alubin03/resume/assets/141780397/d792f879-04ac-4617-8290-af5206e0e25d)
+![image](https://github.com/alubin03/resume/assets/141780397/e681630e-ca8c-4588-a6a6-4ba4e203304c)
